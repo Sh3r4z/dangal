@@ -1,2 +1,4 @@
 # dangal
-biased on freedom
+based on freedom
+true story 
+journey of future
